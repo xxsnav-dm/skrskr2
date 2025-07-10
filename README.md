@@ -16,7 +16,7 @@
 <p>💖 ➡️ <strong>【最新地址 | 永久地址】</strong> ：<a href="https://www.xxsnav.com/sites/15541.html">https://www.xxsnav.com/sites/15541.html/</a>
 </p>
 
-<p>💖 ➡️ <strong>【动漫资源】</strong> ：<a href="https://www.xxsnav.com/favorites/zaixiandongman">https://www.xxsnav.com/favorites/zaixiandongman</a></p>
+<p>💖 ➡️ <strong>【动漫网站大全】</strong> ：<a href="https://dongmandaohang.sodanav.com">https://dongmandaohang.sodanav.com</a></p>
 
 <p>💖 ➡️ <strong>【资源分享】</strong> ：<a href="https://wangpanziyuan.pages.dev/ ">电子书/电影/音乐/漫画/游戏下载</a>（点击打开）</p>
 <h3>
